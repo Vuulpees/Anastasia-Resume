@@ -1,7 +1,8 @@
-# Максимова Анастасия 
-## Резюме системный аналитик [Максимова Анастасия Ивановна.pdf](https://github.com/user-attachments/files/19234900/default.pdf)
+# Максимова Анастасия Ивановна
+## Резюме системный аналитик [Максимова Анастасия.pdf](https://github.com/user-attachments/files/19235008/default.pdf)
 ## Резюме тестировщик [Максимова Анастасия.pdf](https://github.com/user-attachments/files/19234901/default.pdf)
-## Резюме технический специалист [Максимова Анастасия Ивановна_Технический специалист.pdf](https://github.com/user-attachments/files/19234915/_.pdf)
-## Резюме технический писатель [Максимова Анастасия Ивановна_edited.pdf](https://github.com/user-attachments/files/19234943/_edited.pdf)
+## Резюме технический специалист [Максимова Анастасия.pdf](https://github.com/user-attachments/files/19234999/default.pdf)
+## Резюме технический писатель [Максимова Анастасия.pdf](https://github.com/user-attachments/files/19234994/default.pdf)
+
 
 
